@@ -1,0 +1,2 @@
+# QXFloreXQ
+Prietenii adevărații
